@@ -1,3 +1,3 @@
 收藏地址，永不失联
 
-zzzttt.github.io
+https://qianbailu.github.io/qq.com
